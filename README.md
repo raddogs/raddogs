@@ -1,1 +1,1 @@
-![7itaq7](https://github.com/user-attachments/assets/fdd01029-457a-432a-9e93-a4df50ee3b52)
+![20241112_071321](https://github.com/user-attachments/assets/f2b685d5-749c-4b00-bda6-3e0b57e3a95e)
