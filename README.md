@@ -1,2 +1,2 @@
-![20250328_173637](https://github.com/user-attachments/assets/0c4c469e-d794-429c-bc92-590d9b4c665e)
-they took the yuri away?HOWABOUT I HARM MYSELF INTO SHAPE 
+![alien-stage-alnst](https://github.com/user-attachments/assets/83a0e04c-b329-4dee-80b2-e0169eab339f)
+
