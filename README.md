@@ -1,2 +1,1 @@
-![alien-stage-alnst](https://github.com/user-attachments/assets/83a0e04c-b329-4dee-80b2-e0169eab339f)
-
+![20250408_125725](https://github.com/user-attachments/assets/cfafa1c4-199e-46dd-9606-6b08a5f00597)
