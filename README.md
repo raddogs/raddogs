@@ -1,16 +1,13 @@
-## Hi there 👋
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=demonofIight&style=plastic&color=000000&label=AUDIENCE" alt="profile view counter">
+</p>
+<p align="center">
+<img width="400" height="225" src="https://file.garden/ahj6Vh3bekZ7SJkM/GpLaO_Ka4Ag-I3Q.jpg" />
+</p>
 
-<!--
-**raddogs/raddogs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</p>
+<p align="center">
+  <a href="https://rentry.co/aptx">rentry</a>　　
+  <a href="https://raddogs.atabook.org/">新book</a>
+</p>
