@@ -8,6 +8,6 @@
 
 </p>
 <p align="center">
-  <a href="https://rentry.co/aptx">rentry</a>　　
+  <a href="https://fluffle.cc/sdsc">fluffle</a>　　
   <a href="https://raddogs.atabook.org/">新book</a>
 </p>
