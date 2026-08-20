@@ -9,5 +9,6 @@
 </p>
 <p align="center">
   <a href="https://fluffle.cc/sdsc">fluffle</a>　　
+  <a href="https://fluffle.cc/彰冬">pt info</a>　　
   <a href="https://raddogs.atabook.org/">新book</a>
 </p>
