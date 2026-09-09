@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=demonofIight&style=plastic&color=000000&label=AUDIENCE" alt="profile view counter">
 </p>
 <p align="center">
-<img width="700" height="400" alt="Sharing_Joy_For_The_First_Time_T" src="https://github.com/user-attachments/assets/efecbc6a-d5ab-49aa-b4e3-8be03f72ee19" />
+<img width="550" height="300" alt="Sharing_Joy_For_The_First_Time_T" src="https://github.com/user-attachments/assets/efecbc6a-d5ab-49aa-b4e3-8be03f72ee19" />
 </p>
 
 
