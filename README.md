@@ -8,7 +8,10 @@
 
 </p>
 <p align="center">
-  <a href="https://rentry.co/aptx">rentry</a>　　
   <a href="https://fluffle.cc/彰冬">pt info</a>　　
   <a href="https://raddogs.atabook.org/">新book</a>
+</p>
+
+<p align="center">
+info about myself is on hold because i need to remake it on a different website rather than rentry because the creator is a <a href="https://x.com/phainomenons/status/2065190371789816269?s=20">zionist</a>
 </p>
