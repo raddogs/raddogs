@@ -17,3 +17,6 @@
 <p align="center">
 info about myself is on hold because i need to remake it on a different website rather than rentry because the creator is anti-hamas (but not a zionist...???)
 </p>
+<p align="center">
+update: that new info website thing is never coming yo oh and also diehard super mega ultra fly ride mephone4 gooners dni omg idgaf if u wanna fuck him
+</p>
