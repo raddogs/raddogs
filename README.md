@@ -1,8 +1,8 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=demonofIight&style=plastic&color=000000&label=AUDIENCE" alt="profile view counter">
+<img src="https://komarev.com/ghpvc/?username=demonofIight&style=plastic&color=00bacf&label=VIEWERS" alt="profile view counter">
 </p>
 <p align="center">
-<img width="550" height="300" alt="Sharing_Joy_For_The_First_Time_T" src="https://github.com/user-attachments/assets/efecbc6a-d5ab-49aa-b4e3-8be03f72ee19" />
+<img width="535" height="284" alt="ff84aed4bd6a4c8ee10c3e19039597db" src="https://github.com/user-attachments/assets/87f6838e-0e53-485d-9019-8f76d8f316b2" />
 </p>
 
 
